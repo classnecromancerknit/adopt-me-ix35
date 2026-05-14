@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for adopt me is the best adopt me Script, featuring silent aim and speed. Safe and powerful for all your needs.
 
 
 
